@@ -1,1 +1,2 @@
-![Yellow Grey and Purple 3D Elements Student Part-Time Volunteer Resume Presentation (1)](https://user-images.githubusercontent.com/75865332/155773353-424350f7-b40d-4098-be41-da210931fe28.gif)
+![Yellow Grey and Purple 3D Elements Student Part-Time Volunteer Resume Presentation (2)](https://user-images.githubusercontent.com/75865332/155809410-ffe5c5af-a0cc-4221-a355-d88b58c7678c.gif)
+
